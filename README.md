@@ -42,10 +42,7 @@
 
 如有任何疑问或需要协助，请通过以下方式联系我们：
 
-- 邮箱：`support@ikuuu.com`
-- Telegram：`@ikuuu_support`
-- 客服页面：[https://ikuuu.com/contact](https://ikuuu.com/contact)
-
+- 邮箱：`ikuuu@iwatermail.com`
 ---
 
-感谢您选择 ikuuu，我们将竭诚为您提供高质量的服务！
+感谢您选择 ikuuu，我们将竭诚为您提供高质量的服务！请勿推广，谢谢！
